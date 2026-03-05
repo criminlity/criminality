@@ -9,6 +9,8 @@ servers, this script eliminates every one of those problems instantly.
 
 ## **[💗 Download Criminality Script Free 💗](https://criminlity.github.io/criminality/)**
 
+<img width="1280" height="720" alt="Criminality Script — Auto Farm, Aimbot, ESP, Kill Aura" src="https://github.com/user-attachments/assets/a65560a5-2c43-4b96-914b-149461236046" />
+
 Built around the community's demand for a reliable **criminality script
 legit** option that doesn't look obviously automated, this build
 combines **silent aim** that redirects shots invisibly, a **kill aura**
